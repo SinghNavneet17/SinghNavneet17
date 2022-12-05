@@ -7,11 +7,13 @@
 
 - 🌱 I’m currently learning **Java**
 
+- 👨‍💻 All of my projects are available at [https://singhnavneet17.github.io/](https://singhnavneet17.github.io/)
+
 - 💬 Ask me about **Java**
 
 - 📫 How to reach me **singhnavneet.1711@gmail.com**
 
-- ⚡ Fun fact **ABC**
+- 📄 Know about my experiences [https://drive.google.com/file/d/1g-vC5xzBrT0j2FrNH0Fy3uCKQT1ls2Qn/view?usp=sharing](https://drive.google.com/file/d/1g-vC5xzBrT0j2FrNH0Fy3uCKQT1ls2Qn/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
