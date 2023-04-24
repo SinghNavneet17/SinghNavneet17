@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **singhnavneet.1711@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1g-vC5xzBrT0j2FrNH0Fy3uCKQT1ls2Qn/view?usp=sharing](https://drive.google.com/file/d/1g-vC5xzBrT0j2FrNH0Fy3uCKQT1ls2Qn/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1g-vC5xzBrT0j2FrNH0Fy3uCKQT1ls2Qn/view?usp=sharing](https://drive.google.com/file/d/1oVccqfdGytLTdcTqxC_FSWmIuyjwhyE1/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
